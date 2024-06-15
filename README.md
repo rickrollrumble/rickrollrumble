@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 -->
-- 📫 How to reach me: [rahul.rcd96@gmail.com](mailto:rahul.rcd96@gmail.com), [Linkedin](linkedin.com/in/rahulrmchndrn)
+- 📫 How to reach me: [rahul.rcd96@gmail.com](mailto:rahul.rcd96@gmail.com), [Linkedin](https://www.linkedin.com/in/rahulrmchndrn)
 - - 😄 Pronouns: He/Him/His
 
 
